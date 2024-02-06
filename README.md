@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BenkraoudaAmine
+- 👀 I’m interested in Gaming and coding
+- 🌱 I’m currently learning c
+- 📫 How to reach me IG : @MinoBen0
+- ⚡ Fun fact: Me
